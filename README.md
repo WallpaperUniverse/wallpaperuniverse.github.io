@@ -1,4 +1,2 @@
-# Wallpaper Universe
-
 ![](image.png)
 
