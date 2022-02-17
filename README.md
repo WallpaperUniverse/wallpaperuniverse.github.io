@@ -1,3 +1,5 @@
+### [Buy now on OpenSea](https://opensea.io/collection/wallpaperuniverse)
+
 ![](image.png)
 
 # How does it work?
